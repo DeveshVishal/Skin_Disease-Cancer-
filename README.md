@@ -1,1 +1,1 @@
-# Skin_Disease-Cancer-
+Skin Disease-Cancer
